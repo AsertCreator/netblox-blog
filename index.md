@@ -1,4 +1,4 @@
 ---
-title: i hate this
+title: ✨ my misery ✨
 ---
-test blog thing
+me trying to make netblox but nothing works lol
